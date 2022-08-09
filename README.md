@@ -1,2 +1,2 @@
-# ursisterbtw.io
-ursisterbtw.io
+# ursister.io
+ursister.io
